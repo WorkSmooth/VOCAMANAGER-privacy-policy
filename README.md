@@ -1,0 +1,1 @@
+# VOCAMANAGER-privacy-policy
